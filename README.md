@@ -1,0 +1,1 @@
+# sofologo512px.png
